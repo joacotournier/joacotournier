@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @joacotournier
+- 🌱 Product designer / Co-Founder / UX
